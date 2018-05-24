@@ -1,8 +1,8 @@
 # Cindana Putri Ramadhani
 Mahasiswa Ilmu Komputer
 
-*Asrama Putri PPKU IPB* 
-*+6282168604750* 
+*Asrama Putri PPKU IPB*
+*+6282168604750*
 *cindana_pr@apps.ipb.ac.id*
  
 ## Pendidikan
